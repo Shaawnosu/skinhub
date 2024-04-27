@@ -9,7 +9,7 @@
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804488197013625/b.png?ex=662e6d78&is=662d1bf8&hm=2730fa7201557b36286413a801b753421cc075125a18cd57bbd9fdfcfdefc44a&)
 
 # [bloo aristia color + tuna cursor](https://www.mediafire.com/file/a8pd2ipbrlfpeyf/bloo+aristia+color+++tuna+cursor.osk/file)
-![image](https://cdn.discordapp.com/attachments/869918772914454548/1233432217670389790/image.png?ex=662dbb84&is=662c6a04&hm=352e9b67220509f0a9b114c8563d8d5d3efe750553387e0efe843829be7f71d5&)
+![image](https://cdn.discordapp.com/attachments/869918772914454548/1233810156689817670/3.png?ex=662e72c0&is=662d2140&hm=7dc67338d3534f5780735be8c5457371c5a1e09b7932e03ba7fea3b7e571d72b&)
 
 # [AriouTrois](https://www.mediafire.com/file/x99r8113vnla9n8/AriouTrois.osk/file)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804488679227442/c.png?ex=662e6d79&is=662d1bf9&hm=d4f772bc6b16929c522ccadbade20076e13b25f25eaf5fb58e9ba9793309be19&)
