@@ -20,7 +20,7 @@
 # [cheebull monkoglass colors](https://cdn.discordapp.com/attachments/869918772914454548/1233435221366669444/cheebull.osk?ex=662dbe50&is=662c6cd0&hm=f24c34af9f8203e8c991429d4559a44871dfa6dbab71ca667442a6507e6bb18a&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233427950825640060/image.png?ex=662db78b&is=662c660b&hm=0d744fecee8865bf7b2990a2729868aa6cde8f99f19fc8c796aef407a9e39701&)
 
-# [dacjioas](https://cdn.discordapp.com/attachments/869918772914454548/1233427950825640060/image.png?ex=662db78b&is=662c660b&hm=0d744fecee8865bf7b2990a2729868aa6cde8f99f19fc8c796aef407a9e39701&)
+# [dacjioas](https://cdn.discordapp.com/attachments/1167901650594308106/1233796354241724416/dacjioas.osk?ex=662e65e5&is=662d1465&hm=d0cb5afb4b30fffe2cf6fb911df04366014f8c83ed2613852df3cc1509a6e9ad&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233429004694982666/image.png?ex=662db886&is=662c6706&hm=625f50fc7b6ebf011be4db9863bcd0efca9270008844ddbc64a148096e3716f7&)
 
 # [dddddv2](https://www.mediafire.com/file/jzpsy7xl2lle01k/dddddv2.osk/file)
