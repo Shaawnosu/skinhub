@@ -4,6 +4,7 @@
 
 # Just copy the link and paste it on discord then you will have the skin (i'll upload my skins on google drive when i can)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1234050042453819402/image.png?ex=662f5229&is=662e00a9&hm=89a134cbc80551e844138da4d8bb6cd5c1549a3bb1dc2fa9623e9430dd2f9b34&)
+![image](https://cdn.discordapp.com/attachments/869918772914454548/1234050641211424839/image.png?ex=662f52b8&is=662e0138&hm=96cfaadc0e7916e138e6c4c682396086100ebda918a364075d407f2c591bf836&)
 
 # [Aris](https://cdn.discordapp.com/attachments/869918772914454548/1233434773696020613/Aris.osk?ex=662dbde6&is=662c6c66&hm=6bfce1eed2a1f7b3adba74b02de1a8d5379a372bb0a2768a155d246a5c3c69b0&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804319460032653/a.png?ex=662e6d50&is=662d1bd0&hm=95de2dca82c41d72dff6d33a8bb735f0890f62d7aa7fb2a134a3c4ae785f5d5e&)
