@@ -79,7 +79,7 @@
 # [tlqkf](https://cdn.discordapp.com/attachments/869918772914454548/1233436064677494865/tlqkf.osk?ex=662dbf19&is=662c6d99&hm=231675be5fbbf4c1cbe7d5863b0d99a263262c4111125cc62bdd412ff309f5b0&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233805028301471907/y.png?ex=662e6df9&is=662d1c79&hm=a7b8411901dff0e9392c53df52431def6efd235e1956c13e88e0e28e82ae5652&)
 
-# [vv_idke_trail](https://cdn.discordapp.com/attachments/869918772914454548/1234038957784698880/vv_idke_trail.osk?ex=662f47d6&is=662df656&hm=8368d4e58b46b36e6d058979c85271935ed6591adf2de09bea5331d7fed5fadf&)
+# [vv_idke_trail](https://skins.osuck.net/skins/866/download?v=0)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233805028712779927/z.png?ex=662e6df9&is=662d1c79&hm=5c3a7061c8215f302b288a7d4f85de19ae970bfd15dbef2d68ac47d2bcc466f2&)
 
 # [zibi_instafade(Durrr_meubles's skin)](https://cdn.discordapp.com/attachments/869918772914454548/1233436110844067840/zibi_instafade_Durrr_meubles_skin.osk?ex=662dbf24&is=662c6da4&hm=acd5baec21c9980b51acfecb270ee7559fe783e245e3d81ce4bd590ab244ec9e&)
