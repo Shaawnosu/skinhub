@@ -45,6 +45,9 @@
 # [hyeokedit](https://cdn.discordapp.com/attachments/869918772914454548/1233435583376916500/hyeokedit.osk?ex=662dbea7&is=662c6d27&hm=acd7d636d5e5a5f3ebdf1e5c1390ba0ee6146316bd2dad7cd5d5cdfe8339035e&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804602306986034/l.png?ex=662e6d94&is=662d1c14&hm=c18b7d5eda2e7e02a27515a7cad876c74465a4c20da1e0a46cd12f6bfbc1ce9b&)
 
+# [ietherial](https://cdn.discordapp.com/attachments/869918772914454548/1234509788499542016/ietherial.osk?ex=6630fe55&is=662facd5&hm=1577fc5bd9416cb0d590dee8f31fda6bf458785c4998f55c531ea20a6ed910e4&)
+![image](https://cdn.discordapp.com/attachments/869918772914454548/1234510457226793021/danser_2024-04-29_16-23-34.png?ex=6630fef5&is=662fad75&hm=504750843fe62952684ac1e2c8f2411913518086f6a3408a49d3025a4c3ff7d5&)
+
 # [intercambing_hs](https://cdn.discordapp.com/attachments/869918772914454548/1233435621687693332/Intercambing__hs.osk?ex=662dbeb0&is=662c6d30&hm=a203c91d5a7862ed542e9b0512a09bd4d115c37ab00a9efb9df87753054eab15&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804602697060444/m.png?ex=662e6d94&is=662d1c14&hm=f697283a554eef6ce69deed883260388cab38873b79252cc5fefb93e6ed2b752&)
 # [karcher](https://cdn.discordapp.com/attachments/869918772914454548/1233435690545709086/karcher.osk?ex=662dbec0&is=662c6d40&hm=af3f0d20fa8fcb3f5baedd5ce411693a258175b744f13b7ac8217a9a7ed42b06&)
@@ -62,6 +65,9 @@
 # [Mlaw_v1.0](https://cdn.discordapp.com/attachments/869918772914454548/1233435798213234728/Mlaw_v1.0.osk?ex=662dbeda&is=662c6d5a&hm=b68b56c6e75796d3662fd329ab816b7aa4fbca759dcfdde267151d922915ffba&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804927185195069/r.png?ex=662e6de1&is=662d1c61&hm=9db4fe9bf3eee228607f5ca9c5826b97d424a821cb4205037a694d8e650ff993&)
 
+# [monkoedit_v2](https://cdn.discordapp.com/attachments/869918772914454548/1234509843411374140/monkoedit_v2.osk?ex=6630fe62&is=662face2&hm=1f472c5ababb5a414a7d8fdcc8011e8011572c20b47b87b8315df490dd161df7&)
+![image](https://cdn.discordapp.com/attachments/869918772914454548/1234510604799180810/danser_2024-04-29_16-24-15.png?ex=6630ff18&is=662fad98&hm=4adef6b5d88b3b02b5012670ddfb522d8c8a1a9757f9f027b24d511204f97be7&)
+
 # [MonkoGlassTest_edit](https://cdn.discordapp.com/attachments/869918772914454548/1233435821374443640/MonkoGlassTest_edit.osk?ex=662dbedf&is=662c6d5f&hm=fbbb5aa1d19301b8899ffc5097814f29d85912f0050119c756537a40530ab10a&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233804927764140149/s.png?ex=662e6de1&is=662d1c61&hm=44c4f66d72fea9afd1eb46e55e3941b7113cbdef29784b4d2fa276682a376216&)
 
@@ -76,6 +82,9 @@
 
 # [sekibae's varv](https://cdn.discordapp.com/attachments/869918772914454548/1233435972268462110/sekibaes_varv.osk?ex=662dbf03&is=662c6d83&hm=996c0dd997a1927f3536f0de61bcbe6f2fc5a6fe273f892e030fff6ca1bd0057&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233805026758103183/w.png?ex=662e6df9&is=662d1c79&hm=1874e55760189fe8ebd08b71e97322d21424c3e7a8ed18304f371fd3c3df1186&)
+
+# [shii_ekoro_monkoglass](https://cdn.discordapp.com/attachments/869918772914454548/1234509564725166183/shii_ekoro_monkoglass.osk?ex=6630fe20&is=662faca0&hm=ac727ae531b6b271283d05bce3a3d2c1a7f7b46b39e500ddf5335aa5886ce81d&)
+![image](https://cdn.discordapp.com/attachments/869918772914454548/1234510756469538836/danser_2024-04-29_16-24-50.png?ex=6630ff3c&is=662fadbc&hm=8dc35e238136f1168ac13b94d66a34be28cf2ad115f76f9df015337ef5c78382&)
 
 # [thank_yourself_maika](https://cdn.discordapp.com/attachments/869918772914454548/1233436027692126268/thank_yourself_maika.osk?ex=662dbf11&is=662c6d91&hm=b15163bbb9436095fefe0dabc19f0d13c56e2d4c71a562871cd6e7615eb0be3a&)
 ![image](https://cdn.discordapp.com/attachments/869918772914454548/1233805027479654461/x.png?ex=662e6df9&is=662d1c79&hm=f2337d1e5cdcee3cfdb1435d62a9f4afb45329114d193086b82ea1cffba29eba&)
